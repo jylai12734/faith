@@ -336,27 +336,6 @@ Perhaps, confusion while talking about God is beneficial. This forces us to keep
 
     Jeremiah 9:24 "But let him that glorieth glory in this, that he understandeth and knoweth me, that I am the LORD which exercise lovingkindness, judgement, and righteousness, in the earth: for in these things I delight, saith the LORD."  
 
-...
-
-c: What do you guys think about morality? Is it objective or subjective?  
-
-b: If God exists, then it is objective; otherwise, it is subjective.  
-
-c: Why is that the case?   
-
-b: Here is my argument.  
-    
-    P1: Suppose there is a God. God by definition is an entity with a mind that has infinite value.  
-    P2: Only an entity with a mind can have morals.  
-    P3: Objective morality means that certain moral principles are universally valid.  
-    P4: The morals of a more valuable entity is more valid and should be adopted.  
-    P5: The morals of an entity of infinite value supersedes the morals of any group of entities with finite value.  
-    P6: God's moral is more valid than any group of entities anywhere.  
-    P7: God's moral is universal.  
-    P8: There is objective morality.  
-
-x: I have a problem with P1 and P4. 
-
 ### God's Timing
 
     Genesis 15:13-16 "And he said unto Abram, Know of a surety that thy seed shall be a stranger in a land that is not theirs, and shall serve them; and they shall afflict them four hundred years; And also that nation, whom they shall serve, will I judge: and afterward shall they come out with great substance. And thou shalt go to thy fathers in peace; thou shalt be buried in a good old age. But in the fourth generation they shall come hither again: for the iniquity of the Amorites is not yet full.  
@@ -365,7 +344,7 @@ c: I've prayed to God many times. I'm honestly trying to connect to God. He neve
 
 x: Surely, a God that is all-powerful and infinitely moral can answer at least one of your prayers.  
 
-b: Hold on, God is also all-knowing. With all due respect, maybe answering you prayers would actually be a net negative. Or maybe, God is waiting for the optimal time to answer your prayer. This could mean that He is waiting for a time when your life circumstances will magnify the answer to your prayer. After all, don't you want to receive the best possible answer to your questions?  
+b: Hold on, God is also all-knowing. With all due respect, maybe answering your prayers would actually be a net negative. Or maybe, God is waiting for the optimal time to answer your prayer. This could mean that He is waiting for a time when your life circumstances will magnify the answer to your prayer. After all, don't you want to receive the best possible answer to your questions?  
 
 a: Consider Abraham who waited until 100 years old for Isaac to be born. God fulfilled His promise way later then when He made the promise. Charlie, if God fulfils His promise decades after he made it, don't you think it's also possible that He will answer your prayers later in your life? Perhaps, it is more beneficial that He does that.  
 
