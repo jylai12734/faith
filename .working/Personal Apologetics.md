@@ -510,6 +510,14 @@ j: If there is one pattern that I seem to be realizing, sin is usually more stim
 
 j: I had an unproductive day yesterday. I didn't want that to happen again today. When I woke up at 5 am, I was thinking of going back to sleep, but caught myself at the last second. I made sure to ask for the LORD's guidance so that He can help me traverse this land mine field that is my day. I step on one of those mines and the next thing I know, I wasted 4 hours. The LORD told me to look outside the window at His creation. What did I see? The sun was rising, the insects were very busy, the birds were chirping, and the sprinklers were spraying, yet, the atmosphere was calm. I started a new job and there is a lot of uncertainty. I barely have time to sleep. I work ten hours a day and I spend 4-5 hours of my day commuting. I need to find peace in all this trouble. The same peace I felt looking out the window.   
 
+14. Leaders are servants.
+
+    Matthew 23:11-12 "But he that is greatest among you shall be your servant. And whosoever shall exalt himself shall be abased; and he that shall humble himself shall be exalted."
+
+download app
+record matthew 5:
+
+
 ## My Sin
 
 List of sins and the sword to use against them.    
